@@ -10,4 +10,4 @@
 
 <p>本站为您整合了各类国产精品视频资源，包括真实偷拍、剧情演绎、激情自拍等多种风格，全部内容均可高清无广告播放。用户可按题材浏览，也可快速跳转至热门板块，支持多设备无缝切换播放，打造更便捷的观影体验。</p>
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/songsot20250708/songsot13 ）</span>
